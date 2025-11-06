@@ -1,0 +1,1 @@
+# Nurmukhammed_Akynbekuulu_homework2
